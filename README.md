@@ -1,1 +1,1 @@
-# School-proects-VUT-FIT-
+# School-proects-VUT-FIT
